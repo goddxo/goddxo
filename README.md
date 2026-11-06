@@ -1,1 +1,3 @@
 <img width="2048" height="2048" alt="image" src="https://github.com/user-attachments/assets/cb665a74-e79e-4b35-be78-415f0cda31ee" />
+
+mfs spam follow and say 'follow main' bitch if you want me to follow your main you better follow ME on your main
